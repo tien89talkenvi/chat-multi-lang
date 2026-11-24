@@ -1,1 +1,1 @@
-Dua len 24-9-24
+Chat in multi lang 24-11-2026
